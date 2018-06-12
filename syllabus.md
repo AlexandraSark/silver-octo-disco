@@ -3,8 +3,7 @@
 ## Contact Information
 
 Alexandra Sarkozy
-[Undergraduate Library](https://library.wayne.edu), 3rd Floor
-Wayne State University
+Wayne State University Library System
 
 ## Readings
 
